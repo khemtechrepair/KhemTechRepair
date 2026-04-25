@@ -69,6 +69,10 @@ If you still have any questions, give us a call @ (862) 343-7979 or drop by our 
 
 
 
+<img width="2129" height="2342" alt="Dark-Mode Transparent Background" src="https://github.com/user-attachments/assets/785e51e9-abc9-44d3-8761-7b430c0dceff" />
+
+
+
 
 
 > **We don't mess around.** All our in-person repairs come with free diagnostics - and a "No-Fix No-Charge" Policy!
